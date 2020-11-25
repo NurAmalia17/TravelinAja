@@ -1,1 +1,1 @@
-# travelinaja.github.io
+# travelinaja
